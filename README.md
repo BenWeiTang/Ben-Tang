@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **info@bentang.dev**
 
-- 📄 To know about my experiences, check out my [resume](https://static1.squarespace.com/static/63f2e12858a4e244ead6cbb9/t/65cdd325cfcaa030eded5ae2/1707987749839/Ben+Tang+Resume.pdf)
+- 📄 To know about my experiences, check out my [resume](https://static1.squarespace.com/static/63f2e12858a4e244ead6cbb9/t/65cddfc2ac17aa419c538baa/1707990978792/Ben+Tang+Resume.pdf)
 
 - ⚡ Fun fact: **Lived in Philly for 4 years but never did the Rocky steps.**
 
